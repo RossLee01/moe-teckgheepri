@@ -28,8 +28,6 @@ We have just celebrated our 20th anniversary (TG20) in 2022 and beyond TG20, we 
 ●	TGPS will always be the **school for the community** - where we will always endeavor to **Nurture Tomorrow’s Leaders, Today**. 
 
 
-<img src="/images/principal3.jpg" style="width:65%">
-
 This is our promise and commitment to all our TGStars, stakeholders and partners, and to Singapore!
 
 With Gratitude,<br>
