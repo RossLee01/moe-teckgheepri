@@ -23,15 +23,14 @@ In TGPS, we take pride in **Nurturing Tomorrow’s Leaders, Today**! We do this
 
 Through our various holistic programmes and activities that are thoughtfully curated by our team of dedicated teachers and staff, we are confident that all our students will, by the end of their six-year journey with us, become **TGStars** \- students who will be well-positioned to serve and lead in whichever capacity that they so wish to in future when they have the opportunity to contribute to our society both locally and globally.  
 
-2022 will be a milestone year for us as we will be celebrating our **20th Anniversary (TG20)**. The theme for TG20 is “**Learn, Dream and Inspire**”.
+We have just celebrated our 20th anniversary (TG20) in 2022 and beyond TG20, we aspire that:
+●	Our TGStars will always be the **pride of our community and nation** - where they will always find meaningful ways to give back and serve in whichever capacity that their passion and interest will take them in their lives;
+●	TGPS will always be the **school for the community** - where we will always endeavor to **Nurture Tomorrow’s Leaders, Today**. 
+
 
 <img src="/images/principal3.jpg" style="width:65%">
 
-Through the year-long anniversary celebration, we will draw our strength, confidence and gratitude from what we have achieved over the past 20 years, and we strive to continue to **Learn** and grow as a school.
-
-We want our TGStars to have the courage to **Dream** and self-belief to achieve greatness in their lives. That they can also **Inspire** people around them to shine, and to aspire and achieve their dreams.
-
-All these will be possible, when we unite as a TG Family, to learn and grow together!
+This is our promise and commitment to all our TGStars, stakeholders and partners, and to Singapore!
 
 With Gratitude,<br>
 **Mr. Wong Jia Wang**<br>
