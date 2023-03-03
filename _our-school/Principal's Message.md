@@ -5,7 +5,7 @@ description: ""
 ---
 ### **Principal's Message**
 
-#### **Learn . Dream . Inspire**
+#### **Nurturing Tomorrow's Leaders, Today**
 <img src="/images/principal1.jpg" style="width:30%;margin-right:15px;" align = "left">
 
 As futurist and philosopher Alvin Toffler once wrote: "**_The illiterate of the 21st century will not be those who cannot read and write, but those who cannot learn, unlearn, and relearn._**"
